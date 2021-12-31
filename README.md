@@ -9,3 +9,4 @@
 - I find CSS colour codes funny.
 - I always forget to make an  index.html file because I am a professional dumbass.
 - Now, only I can can call myself dumb. If you call me bumb I will get a flock of weaponized penguins to obliterate you.
+- If you hire me, I will get my penguin minions to do work for you.🙃
