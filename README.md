@@ -1,6 +1,6 @@
 ### Hi there 👋
  
-- I do dumb shi
+- I do dumb shit
 - I eat about 2 ants everyday
 - I create dumb shit physics projects
 - I have a website.
